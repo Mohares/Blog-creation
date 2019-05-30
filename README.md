@@ -1,2 +1,2 @@
 # Blog-creation
-This repository contains project that will create my own blog for the first time
+I am call Mohamed Hares Ali, i am new to Github platform, however i am so much interested to join the team of web designers and developers and make a remarkable contribution for their field website creation and development. i am dynamic resourcefull result oriented character with strong sense of believe deriven by desire to achieve set of goals and utilize available resoource in Github and further develope muy skills of web develpment. I am passionate to invent something new which is benificial to human being at large.
